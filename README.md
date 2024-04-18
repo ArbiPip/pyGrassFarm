@@ -5,7 +5,7 @@ Discover the latest `<crypto/>` moves in my Telegram Channel: https://t.me/+zwYm
 
 Cheapest [proxies and servers](https://teletype.in/@web3enjoyer/4a2G9NuHssy) which fits for  on [grass.io](https://app.getgrass.io/register/?referralCode=8PAl7wCGN3Sfgpk).
 
-![image](https://github.com/MsLolita/grass/assets/58307006/610b95b4-369f-4a71-ac24-f45e8dee6380)
+![image](https://i.imgur.com/e4X1k5J.png)
 
 
 ### What is bot for?
